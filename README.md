@@ -1,1 +1,1 @@
-# Factores-de-estr-s-estudiantil---Excel
+# Factores de estrés estudiantil - Excel
